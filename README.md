@@ -10,7 +10,7 @@
 
 # 呵呵#
 
-![庄心妍](/Users/lopez/Desktop/timg.jpg)
+![庄心妍](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1522667399964&di=a4523ca7c19c5ed22f2bda5aa8d5461e&imgtype=0&src=http%3A%2F%2Fimg.5nd.com%2FPhoto%2Fsinger%2F2%2F25740.jpg)
 
 > 来自网上
 >
